@@ -1,7 +1,7 @@
 # De donde sacas tus wallpapers?
 Debido a que siempre es lo mismo en mis videos aqui estare subiendo todos mis fondos de escritorio o wallpapers
 
-[![ZATIEL.png](https://i.postimg.cc/zGfbRMgp/ZATIEL.png)](https://postimg.cc/dLztb5nT)
+[![zatiel-banner.png](https://i.postimg.cc/K4hmwYbN/zatiel-banner.png)](https://postimg.cc/V04ybmdr)
 
 ### EQUIS DE
 
